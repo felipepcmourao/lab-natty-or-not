@@ -14,7 +14,7 @@ Utilizei o "ChatGPT" criar o roteiro da história, dividir em páginas e prepara
 ## 🚀 Resultados
 O livro infantil apresenta uma história original e cativante que chama atenção e apresenta uma moral, demonstrando como é possível criar um conteúdo totalmente criativo e cativante através das IAs Generativas.
 
-ACESSE O LIVRO [WHISKERS - THE JUMPER CAT](https://www.flipsnack.com/879BD6BBDC9/whiskers-the-jumper-cat/full-view.html)
+ACESSE O LIVRO [WHISKERS - THE JUMPER CAT](https://1drv.ms/p/c/9e6813cea66433d4/EXhgXJcrYFdPkaAMArkTnx4BPoGDcyM4bBGgH2WjYFYo-A?e=qX5yhf)
 
 ## 💭 Reflexão
 Foi muito interessante criar esse livro infantil, pois fiquei impressionado o quão rápido podemos criar resultados criativos com IAs e quão variadas são suas funcionalidades.
